@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Where is my free coffee?
